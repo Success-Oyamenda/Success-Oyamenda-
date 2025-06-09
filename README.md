@@ -6,4 +6,4 @@
 📚 I love tech, animation, and helping students like me prepare for exams  
 🌱 Learning every day and creating cool projects
 
-> “The future belongs to those who build it.” – Success
+> “The future belongs to those who build it.” Success
